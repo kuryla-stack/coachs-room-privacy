@@ -18,4 +18,4 @@ Coach's Room is not directed at children under 13, and we do not knowingly colle
 
 Contact
 
-For privacy questions, contact the app owner at owner@example.com. Replace this placeholder with the owner's real support address before publishing the policy.
+For privacy questions, contact the app owner at irinazrzula7@gmail.com. Replace this placeholder with the owner's real support address before publishing the policy.
